@@ -66,4 +66,4 @@ https://www.kaggle.com/code/imkushwaha/project-forecasting-the-furniture-sales/d
 
 ---
 
-Feel free to send me your queries at vihasharma1099@email.com
+Feel free to send me your queries at rishitachouhan@icloud.com
